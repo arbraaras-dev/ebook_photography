@@ -1,4 +1,5 @@
 # ebook_photography
+<img width="1408" height="768" alt="Gemini_Generated_Image_nqkcxhnqkcxhnqkc" src="https://github.com/user-attachments/assets/69ba5af4-8123-4873-bfdf-d6ced5ccdb40" />
 
 # 📸 Risorse Fotografia & Videomaking Gratuite (ZIP)
 
